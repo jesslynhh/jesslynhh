@@ -1,4 +1,6 @@
-## Hi there 👋
+## hai ヾ(≧ ▽ ≦)ゝ
+![sanrio](https://github.com/user-attachments/assets/fcd6f4b8-3e90-4bc5-8678-1b6cc78779d4)
+
 
 <!--
 **jesslynhh/jesslynhh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
