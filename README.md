@@ -1,6 +1,7 @@
 ### hai ヾ(≧ ▽ ≦)ゝ
 
-![sanrio](https://github.com/user-attachments/assets/9f28ea68-0b31-4c3e-bfad-2bdabadd4b60)
+![croppedsanrio](https://github.com/user-attachments/assets/a9bfb3f2-b69d-4148-b8b6-5a8e2bb19aa4)
+
 
 
 <!--
